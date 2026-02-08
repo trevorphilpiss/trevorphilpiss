@@ -1,7 +1,7 @@
 <p align="center"> ⚬──────────✧──────────⚬  
 
   
-  ![](https://komarev.com/ghpvc/?username=trevorphilpiss&colour=orange&style=plastic&label=Trevor+Philips+Industries+Members&base=6)
+  ![](https://komarev.com/ghpvc/?username=trevorphilpiss&colour=orange&style=plastic&label=Trevor+Philips+Industries+Members&base=0)
 
 <p align="center"> ⚬──────────✧──────────⚬  
 
@@ -9,13 +9,20 @@
 
   <p align="center"> ⚬──────────✧──────────⚬  
 
-  ![alt text](https://i.pinimg.com/1200x/c0/78/b6/c078b681ea1ee48846938bf20686db30.jpg)
+[strawpage](https://trevorphilipsskid.straw.page)  ⚬──────────✧──────────⚬   [atabook](https://alexioslemons.atabook.org/)  ⚬──────────✧──────────⚬  [guns](https://guns.lol/alexioslemons)
 
   <p align="center"> ⚬──────────✧──────────⚬  
 
-  [strawpage](https://trevorphilipsskid.straw.page)  ⚬──────────✧──────────⚬   [atabook](https://alexioslemons.atabook.org/)  ⚬──────────✧──────────⚬  [guns](https://guns.lol/alexioslemons)
 
+ ![alt text](https://i.pinimg.com/1200x/c0/78/b6/c078b681ea1ee48846938bf20686db30.jpg)
 
+ 
   <p align="center"> ⚬──────────✧──────────⚬  
+
+  
+  
+  <p align="center">  <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/823332c9-f08f-4f6e-9b57-bef2eb17c457" />
+<img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/bc1ad880-a02a-47c3-8bf2-77fe258ca0e9" />
+<img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/19b597e2-66b9-4c8d-9227-4ba7d28cd68b"/> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/05cd8604-8a19-4211-ba7a-0df361ffe864" />
 
   
