@@ -6,7 +6,8 @@
 
 · · ─ ·✶· ─ · ·[strawpage](https://trevorphilipsskid.straw.page)  · · ─ ·✶· ─ · ·  [atabook](https://alexioslemons.atabook.org/)  · · ─ ·✶· ─ · ·  [guns](https://guns.lol/alexioslemons) · · ─ ·✶· ─ · ·
 
-<img width="1920" height="1080" alt="New Drawing (3)" src="https://github.com/user-attachments/assets/817d815a-625f-49c3-89f8-35f1b70c2835" />
+<img width="1200" height="809" alt="bc0c5ad7f1557f7ba1db09a9ac6a891f" src="https://github.com/user-attachments/assets/22b12d4e-d5df-47e5-aa16-7b9ac71d4bbb" />
+
 
 
 <p align="center"> · · ─ ·✶· ─ · ·
