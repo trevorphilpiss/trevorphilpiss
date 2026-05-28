@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=trevorphilpiss&colour=orange&style=plastic&label=Trevor+Philips+Industries+Members&base=0)
+![](https://komarev.com/ghpvc/?username=trevorphilpiss&colour=orange&style=plastic&label=Trevor+Philips+Industries+Members&base=0&color+orange)
 
 <p align="center"> · · ─ ·✶· ─ · ·
 
