@@ -5,7 +5,7 @@
 
   > "Well, why we don't just ask him then, huh? Hey, hey, cowboy, do you mind that I fucked your old lady? Sorry, what was that? What? No, no? You don't mind? Oh, because you're a dead man, and the only sentient part of you left is this little bit of brain in the gristle on the end of my boot? Well, thank you very much, cowboy."
 
-· · ─ ·✶· ─ · ·[strawpage](https://trevorphilipsskid.straw.page)  · · ─ ·✶· ─ · ·  [atabook](https://alexioslemons.atabook.org/)  · · ─ ·✶· ─ · ·  [guns](https://guns.lol/alexioslemons) · · ─ ·✶· ─ · ·
+· · ─ ·✶· ─ · ·[strawpage](https://trevphilips.straw.page)  · · ─ ·✶· ─ · ·  [atabook](https://alexioslemons.atabook.org/)  · · ─ ·✶· ─ · ·  [guns](https://guns.lol/alexioslemons) · · ─ ·✶· ─ · ·
 
 <img width="1200" height="809" alt="bc0c5ad7f1557f7ba1db09a9ac6a891f" src="https://github.com/user-attachments/assets/22b12d4e-d5df-47e5-aa16-7b9ac71d4bbb" />
 
